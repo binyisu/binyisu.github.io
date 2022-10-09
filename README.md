@@ -1,1 +1,1 @@
-# Click: [subinyi.github.io](https://binyisu.github.io/)
+# Click: [binyisu.github.io](https://binyisu.github.io/)
